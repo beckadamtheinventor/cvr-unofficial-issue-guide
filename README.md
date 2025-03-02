@@ -1,0 +1,1 @@
+https://beckadamtheinventor.github.io/cvr-unofficial-issue-guide
